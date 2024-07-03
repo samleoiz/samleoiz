@@ -1,5 +1,1 @@
-- 👋 I’m @samleoiz
-- 👀 I’m interested in anime, making friends, playing games and work.
-- 🌱 I’m currently learning to make friends and subjects.
-- 🌸 please dni if your not my friend.
-- 🎀 i sometimes interact with gh ppls.
+
